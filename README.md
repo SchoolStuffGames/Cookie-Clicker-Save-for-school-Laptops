@@ -10,15 +10,19 @@ Unblocked Cookie CLicker For School "https://sites.google.com/view/games-unblock
 Once Open Hit Option then Import Save.
 .
 .
-.                               __________________________________
-A popup should appear like this |                                |
-                                |                                |
-                                |                                |
-                                |                                |
-                                |                                |
-                                |                                |
-                                |________________________________|
-                                
+.                               
+
+A popup should appear
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
 Or Insert the File Listed Below :D The End
 .
 .
